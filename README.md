@@ -1,8 +1,7 @@
 # Sobre-Mim
-- Meu nome é Fernanda Santos da Trindade
--aluna do casemiro karman 
--
-
+- Meu nome é Fernanda e eu sou muito :confused:
+-gosto de gato :smiley_cat:
+eu dou risada de tudo :smile:
 
 
 
